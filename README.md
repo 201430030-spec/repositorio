@@ -1,1 +1,1 @@
-# repositorio creado po Oswaldo Fentanes Gasca
+# repositorio creado por Oswaldo Fentanes Gasca
